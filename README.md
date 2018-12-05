@@ -13,7 +13,7 @@ So this is my list of [female fronted metal](https://www.last.fm/tag/female+fron
 * Bands listed are not necessarily in any order.
 
 ## The Likes
-[The Agonist](https://last.fm/artist/The Agonist)[img]http://userserve-ak.last.fm/serve/500/22107289/The+Agonist.jpg[/img]
+[The Agonist](https://last.fm/artist/The Agonist) [img]http://userserve-ak.last.fm/serve/500/22107289/The+Agonist.jpg[/img]
 
 [My Ruin](https://last.fm/artist/My Ruin)[img]http://userserve-ak.last.fm/serve/500/18371953/My+Ruin++2.jpg[/img]
 
